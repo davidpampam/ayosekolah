@@ -1,0 +1,2 @@
+# ayosekolah
+seputar pendidikan
